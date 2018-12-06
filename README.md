@@ -1,2 +1,2 @@
-# OLDMANSRETREAT
-Old Man's Retreat ◾️Mystery Game.
+# OLD MAN'S RETREAT
+Mystery Game.
